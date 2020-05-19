@@ -8,4 +8,4 @@ You can train it on any dataset you want.
 
 
 
-AND HERE iS MY [Certificate Of Completion](www.google.com)
+AND HERE iS MY [Certificate Of Completion](https://www.coursera.org/account/accomplishments/verify/2ZFG3RCYVV3L?utm_source=link&utm_campaign=copybutton_certificate&utm_product=project)
